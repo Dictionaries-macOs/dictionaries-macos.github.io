@@ -1,0 +1,1 @@
+# dictionaries-macos.github.io
